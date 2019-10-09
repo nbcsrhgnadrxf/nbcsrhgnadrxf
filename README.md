@@ -1,2 +1,0 @@
-# nbcsrhgnadrxf
-give for you!
